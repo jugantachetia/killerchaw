@@ -1,2 +1,5 @@
-# killerchaw
-i am lonley boy
+# KILLER BOYS
+WALCOME TO KILLER WORLD
+VISIT AGAIN
+BYYYYYYY
+LOVE YOU
